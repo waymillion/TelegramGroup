@@ -24,7 +24,7 @@
       <a href="https://t.me/soso?start=a_1021757501">@搜搜机器人</a>
     </td>
     <td align="center">
-      <a href="https://t.me/jisou2bot?start=a_7202424896">
+      <a href="https://t.me/jisou2bot?start=a_1021757501">
         <img src="https://i.imgur.com/1VoAGvh.png" width="345px;" alt="3"/>
       </a>
       <br />
@@ -46,14 +46,14 @@
         <img src="https://i.imgur.com/woGNZUA.png" width="345px;" alt="1"/>
       </a>
       <br />
-      <a href="https://t.me/juruqun">暗网搜索</a>
+      <a href="https://t.me/juruqun">巨乳搜索</a>
     </td>
     <td align="center">
       <a href="https://t.me/TNTsex">
         <img src="https://i.imgur.com/SVox0Se.png" width="345px;" alt="2"/>
       </a>
       <br />
-      <a href="https://t.me/soupian20w">极品动漫</a>
+      <a href="https://t.me/TNTsex">极品动漫</a>
     </td>
 
   <td align="center">
@@ -70,60 +70,54 @@
 
 ### 推荐
 
-*   Telegram 🚀每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
-*   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
-*   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_7202424896)
-*   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_7202424896)
-*   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_7202424896)
-*   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)
-*   Telegram 🔥华夏索引🤖:[https://huaxia123_bot](https://t.me/aiso?start=telegram_7202424896)
+*   Telegram 🔥全网3D同人动漫:[https://t.me/TNTsex](https://t.me/TNTsex)
+*   Telegram 🔥最大VAM国漫社:[https://t.me/kanvam](https://t.me/kanvam)
+*   Telegram 🔥最大黄油社:[https://t.me/ACGgamer](https://t.me/ACGgamer)
+*   Telegram 🔥巨乳福利搜索群:[https://t.me/juruqun](https://t.me/juruqun)
+*   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_1021757501)
+*   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_1021757501)
+*   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_1021757501)
+*   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_1021757501)
+*   Telegram 🔥华夏索引🤖:[https://huaxia123_bot](https://t.me/aiso?start=telegram_1021757501)
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
-*   Telegram 🥷暗网搜索🔍:[https://t.me/anwangsearch](https://t.me/anwangsearch)
 *   Telegram 🔥搜片神器🎥:[https://t.me/soupian20w](https://t.me/soupian20w)
 *   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7202424896)
 *   Telegram 🔥网盘资源🔥电影🔥视频:[https://t.me/sousou200000](https://t.me/sousou200000)
-*   Telegram 🔥20万人Telegram中文社群:[https://t.me/tgcnchat](https://t.me/tgcnchat)
-*   Telegram 🔥20万人搜搜群:[https://t.me/sobot1024](https://t.me/sobot1024)
-*   Telegram 🔥20万人极搜群:[https://t.me/jisou200000](https://t.me/jisou200000)
-*   Telegram 🔥20万人i快搜群:[https://t.me/ikuaisou](https://t.me/ikuaisou)
-*   Telegram 🔥20万人神马搜索群:[https://t.me/smss200000](https://t.me/smss200000)
 *   Telegram 🔥阿里云盘资源搜索:[https://t.me/aliyunpan20w](https://t.me/aliyunpan20w)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   Telegram 🔥全网直播回放抖音|斗鱼|虎牙|B站等等:[https://t.me/luzhiob](https://t.me/luzhiob)
-*   Telegram 🔥国内正规大流量卡 29元200G流量卡:[https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024)
-*   Telegram 🎮PG电子爆币:[https://t.me/PGPGSoftbot](https://t.me/PGPGSoftbot?start=10264)
-*   Telegram 🎰起点电子:[https://t.me/qidiandianziBot](https://t.me/qidiandianziBot?start=43923)
+
 
 ### Telegram钱包|虚拟信用卡
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
 | wallet       |   [@wallet](https://t.me/wallet)  | Telegram官方钱包，支持比特币、USDT和TON的应用内支付|
-| okpay      | [@OkayPayBot](https://t.me/OkayPayBot?start=creditCardInvite--7202424896)       |可用于店租（Amazon、Shopify、Shope等）、广告（Facebook、Google等）、云服务、游戏、开发者应用、海淘购物等全场景支付。|
+
 
 ### 交易所提币
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-| 币安    |   [https://accounts.binance.com](https://accounts.binance.com/zh-CN/register?ref=896983517)   |       币安交易所(持有bnb减免40%手续费)|
-| 欧易OKX    |   [https://www.okx.com](https://www.cnouyi.ninja/join/78810492)   |      欧易交易所(减免20%手续费)|
+| 币安    |   [https://accounts.binance.com](https://accounts.binance.com/zh-CN)   |       币安交易所(持有bnb减免40%手续费)|
+| 欧易OKX    |   [https://www.okx.com]((https://www.okx.com))   |      欧易交易所(减免20%手续费)|
 
 ### 社工库机器人
 
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-| 暗精灵社工库      |  [@AJL01_bot](https://t.me/AJL01_bot?start=X47LlHGN7s)   |       注册即可拥有一定免费额度 |
-| 星盾社工机器人 |   [@XingDun2Bot](https://t.me/XingDun2Bot?start=fBa7YO9)   |   数据不定期更新，查询免费币 |
-| 屁屁侦探社工库机器人  |  [@ppsgk_bot](https://t.me/ppsgk_bot?start=7202424896)   |   注册就送价值 10 USDT积分 |
-| 小丑社工机器人   |   [@Joker_SGKbot](https://t.me/Joker_SGKbot?start=cDRwBhbqEl)   |    **无需签到，每天默认送两次免费查询机会** |
-| 爱社工库    |  [@aishegongkubot](https://t.me/aishegongkubot?start=AISGK_6PNUQFAQ)  |     签到有积分 |
-| 007工具机器人      |   [@sgk007_bot](https://t.me/sgk007_bot?start=NzIwMjQyNDg5Ng)  | 验证你提供的信息是否是一个人的 |
-| 搜狗社工库  |  [@SOUGOUSGK_BOT](https://t.me/SOUGOUSGK_BOT?start=NzIwMjQyNDg5Ng==)  |    注册即有积分 |
-| Botnet免费社工机器人    | [@SGK_0001_bot](https://t.me/SGK_0001_bot?start=7202424896)   |    每日签到、邀请等方式获取 |
-| Hope机器人      |   [@HereisHopeBot](https://t.me/HereisHopeBot?start=7202424896)  | 综合数据机器人 |
-| 情报局社工库  |   [@InfSGK0_bot](https://t.me/InfSGK0_bot?start=NzIwMjQyNDg5Ng==)  |   注册、签到有积分 |
+| 暗精灵社工库      |  [@AJL01_bot](https://t.me/AJL01_bot)   |       注册即可拥有一定免费额度 |
+| 星盾社工机器人 |   [@XingDun2Bot](https://t.me/XingDun2Bot)   |   数据不定期更新，查询免费币 |
+| 屁屁侦探社工库机器人  |  [@ppsgk_bot](https://t.me/ppsgk_bot)   |   注册就送价值 10 USDT积分 |
+| 小丑社工机器人   |   [@Joker_SGKbot](https://t.me/Joker_SGKbot)   |    **无需签到，每天默认送两次免费查询机会** |
+| 爱社工库    |  [@aishegongkubot](https://t.me/aishegongkubot)  |     签到有积分 |
+| 007工具机器人      |   [@sgk007_bot](https://t.me/sgk007_bot)  | 验证你提供的信息是否是一个人的 |
+| 搜狗社工库  |  [@SOUGOUSGK_BOT](https://t.me/SOUGOUSGK_BOT)  |    注册即有积分 |
+| Botnet免费社工机器人    | [@SGK_0001_bot](https://t.me/SGK_0001_bot)   |    每日签到、邀请等方式获取 |
+| Hope机器人      |   [@HereisHopeBot](https://t.me/HereisHopeBot)  | 综合数据机器人 |
+| 情报局社工库  |   [@InfSGK0_bot](https://t.me/InfSGK0_bot)  |   注册、签到有积分 |
 
 ### 常用机器人
 
-🔥Telegram专门的机器人合集🔥：[https://github.com/itgoyo/TelegramBot](https://github.com/itgoyo/TelegramBot)
+🔥Telegram专门的机器人合集🔥：
 
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
@@ -136,12 +130,12 @@
 #### TG中文群组索引机器人bot
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-|SOSO|[@soso](https://t.me/sosoo?start=a_7202424896)|群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
-| 极搜JiSo | [@jiso](https://t.me/jiso?start=a_7202424896)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
-| 极搜JiSou     | [@jisou](https://t.me/jisou2bot?start=a_7202424896)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
-| 神马索引机器人      | [@smss](https://t.me/smss?start=spread_7202424896)       | 神马索引机器人，可以通过关键词查找  |
-| 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=7202424896)        | 帮助您找到感兴趣的群组、频道和机器人！      |
-| TON索引     | [@https://t.me/TonCnBot](https://t.me/TonCnBot?start=7202424896)       | 帮助您找到感兴趣的群组、频道和机器人！  |
+|SOSO|[@soso](https://t.me/sosoo?start=a_1021757501)|群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
+| 极搜JiSo | [@jiso](https://t.me/jiso?start=a_1021757501)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
+| 极搜JiSou     | [@jisou](https://t.me/jisou2bot?start=a_1021757501)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
+| 神马索引机器人      | [@smss](https://t.me/smss?start=spread_1021757501)       | 神马索引机器人，可以通过关键词查找  |
+| 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=1021757501)        | 帮助您找到感兴趣的群组、频道和机器人！      |
+| TON索引     | [@https://t.me/TonCnBot](https://t.me/TonCnBot?start=1021757501)       | 帮助您找到感兴趣的群组、频道和机器人！  |
 
 
 #### 群组抽奖机器人
@@ -202,7 +196,7 @@
 #### 其他有趣机器人
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-|PG电子🎮爆币      | [@PGPGSoftbot](https://t.me/PGPGSoftbot?start=10264)       | 爆金币 |
+|PG电子🎮爆币      | [@PGPGSoftbot](https://t.me/PGPGSoftbot)       | 爆金币 |
 | Dictionary bot      | [@dicbot](https://t.me/dicbot)       | Dictionary bot that gives definitions of words.  |
 | Chatbot      | [@strangybot](https://t.me/strangybot)       | A chatbot that you can talk to.  |
 | Quiz bot   | [@QuizBot](https://t.me/QuizBot)        | Create and take quizzes.      |
@@ -255,7 +249,7 @@
 
 
 
-### 群组 Group[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BE%A4%E7%BB%84-group)
+### 群组 Group[]
 
 ###### 京豆
 
@@ -266,7 +260,7 @@
 *   互助研究院:[https://t.me/update_help](https://t.me/update_help)
 *   Leeco-雪花社:[https://t.me/xuehuashe](https://t.me/xuehuashe)
 
-###### 番茄[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99)
+###### 番茄[]
 
 *   每日免费节点:[https://t.me/autofreevpn](https://t.me/autofreevpn)
 *   Shadowsocks&Clash:[https://t.me/shadowsocks_clash](https://t.me/shadowsocks_clash)
@@ -540,7 +534,7 @@
 *   DEVONthink Chinese:[https://t.me/DEVONthink](https://t.me/DEVONthink)
 *   Filebox 官方群:[https://t.me/FileboxApp](https://t.me/FileboxApp)
 
-###### 社群[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%A4%BE%E7%BE%A4)
+###### 社群[]
 
 *   币圈日报:[https://t.me/bidaily](https://t.me/bidaily)
 *   币安官方中文群:[https://t.me/BinanceChinese](https://t.me/BinanceChinese)
@@ -1053,7 +1047,7 @@
 *   闲蛋面板🥚交流群:[https://t.me/xdzzmb](https://t.me/xdzzmb)
 *   加密货币爱好者:[https://t.me/twittercryptofans](https://t.me/twittercryptofans)
 
-###### 播客[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%92%AD%E5%AE%A2)
+###### 播客[]
 
 *   Checked.FM 听众群:[https://t.me/joinchat/Ag98Fw0TEeBh2Xz8s0d9mg](https://t.me/joinchat/Ag98Fw0TEeBh2Xz8s0d9mg)
 *   一天世界:[https://t.me/ipn_yitianshijie](https://t.me/ipn_yitianshijie)
@@ -1077,7 +1071,7 @@
 *   津津乐道听友交流:[https://t.me/htnpodcast](https://t.me/htnpodcast)
 *   捕蛇者说讨论组:[https://t.me/joinchat/Dm8lIVjvCo9_-6YZYLycEw](https://t.me/joinchat/Dm8lIVjvCo9_-6YZYLycEw)
 
-###### Telegram[](https://congcong0806.github.io/2018/04/24/Telegram/#telegram)
+###### Telegram[]
 
 *   Durov’s Chat:[https://t.me/durovschat](https://t.me/durovschat)
 *   官方翻译支持群 English:[https://t.me/translation_en](https://t.me/translation_en)
@@ -1131,7 +1125,7 @@
 *   64Gram:[https://t.me/tg_x64](https://t.me/tg_x64)
 *   telegram.Bot:[https://t.me/pythontelegrambotgroup](https://t.me/pythontelegrambotgroup)
 
-###### 地区群[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%9C%B0%E5%8C%BA%E7%BE%A4)
+###### 地区群[]
 
 *   深圳:[https://t.me/shenzhenbot?start=join](https://t.me/shenzhenbot?start=join)
 *   深圳:[https://t.me/shenzhentg](https://t.me/shenzhentg)
@@ -1155,20 +1149,7 @@
 *   河南郑州:[https://t.me/hnzzs](https://t.me/hnzzs)
 *   河南周口:[https://t.me/zhoukou](https://t.me/zhoukou)
 
-###### 新冠肺炎[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E)
-
-*   #nCoV 主群（疫区疫情新闻 / 互助）:[https://t.me/joinchat/OElQrFZiBp5If1A90UCnsg](https://t.me/joinchat/OElQrFZiBp5If1A90UCnsg)
-*   #nCoV 武汉封城自由讨论区:[https://t.me/joinchat/OElQrFKWIz_B1qtkNwE7qA](https://t.me/joinchat/OElQrFKWIz_B1qtkNwE7qA)
-*   #nCoV English discussion:[https://t.me/WuhanCorona](https://t.me/WuhanCorona)
-*   #nCoV 粤语 / HK / 繁體疫區疫情:[https://t.me/joinchat/OElQrBQ_WvPb4juxJAJkgw](https://t.me/joinchat/OElQrBQ_WvPb4juxJAJkgw)
-*   #nCoV 美国疫情讨论区:[https://t.me/US2019nCOV](https://t.me/US2019nCOV)
-*   武汉肺炎新型病毒交流群:[https://t.me/zhaook](https://t.me/zhaook)
-*   武汉肺炎疫情交流:[https://t.me/wuhangroup](https://t.me/wuhangroup)
-*   武汉肺炎疫情交流讨论:[https://t.me/SARSnew](https://t.me/SARSnew)
-*   新冠肺炎 (COVID-19) 讨论群:[https://t.me/CoronavirusDiscuss](https://t.me/CoronavirusDiscuss)
-*   美国华人抗冠状病毒群:[https://t.me/FightSARI](https://t.me/FightSARI)
-
-###### 其他[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%85%B6%E4%BB%96)
+###### 其他[]
 
 *   Coder Offtopic 中文群:[https://t.me/coder_ot](https://t.me/coder_ot)
 *   BoastTG:[https://t.me/BoastTG](https://t.me/BoastTG)
@@ -1305,9 +1286,9 @@
 *   养鸽交流中心:[https://t.me/joinchat/MM1WQu5HEHlhZjU9](https://t.me/joinchat/MM1WQu5HEHlhZjU9)
 *   一起充电群:[https://t.me/letsbuycharger](https://t.me/letsbuycharger)
 
-##### 频道 Channel[](https://congcong0806.github.io/2018/04/24/Telegram/#%E9%A2%91%E9%81%93-channel)
+##### 频道 Channel[]
 
-###### Telegram[](https://congcong0806.github.io/2018/04/24/Telegram/#telegram-1)
+###### Telegram[]
 
 *   Durov’s Channel（Telegram 创始人兼 CEO 的频道）:[https://t.me/durov](https://t.me/durov)
 *   Telegram 官方诈骗举报:[https://t.me/notoscam](https://t.me/notoscam)
@@ -1392,7 +1373,7 @@
 *   捷报 News:[https://t.me/JieBaoNews](https://t.me/JieBaoNews)
 *   PagerMaid-Modify Update:[https://t.me/PagerMaid_Modify](https://t.me/PagerMaid_Modify)
 
-###### 翻墙[](https://congcong0806.github.io/2018/04/24/Telegram/#%E7%BF%BB%E5%A2%99-1)
+###### 翻墙[]
 
 *   毒药机场测速 SS/SSR:[https://t.me/DuyaoSS](https://t.me/DuyaoSS)
 *   V1 Blog 科技 生活 SpeedTest 主机评测:[https://t.me/V1_BLOG](https://t.me/V1_BLOG)
@@ -1511,7 +1492,7 @@
 *   黑科技 TG 代理:[https://t.me/iPoject](https://t.me/iPoject)
 *   SSRSpeed N 更新频道:[https://t.me/SSRSpeed_N](https://t.me/SSRSpeed_N)
 
-###### 软件[](https://congcong0806.github.io/2018/04/24/Telegram/#%E8%BD%AF%E4%BB%B6-1)
+###### 软件[]
 
 *   App 限免精选:[https://t.me/appfans](https://t.me/appfans)
 *   App 资讯聚合:[https://t.me/app_news_cn](https://t.me/app_news_cn)
@@ -1596,7 +1577,7 @@
 *   Anti Revoke Plugin - 防撤回插件:[https://t.me/AntiRevoke](https://t.me/AntiRevoke)
 *   Typecho Dev Channel:[https://t.me/typechodev](https://t.me/typechodev)
 
-###### 媒体[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%AA%92%E4%BD%93)
+###### 媒体[]
 
 *   Telegram 中文 NEWS:[https://t.me/YinxiangBiji_News](https://t.me/YinxiangBiji_News)
 *   Vultr News:[https://t.me/vultr_news](https://t.me/vultr_news)
@@ -1903,34 +1884,7 @@
 *   二手🐴:[https://t.me/SecHorse](https://t.me/SecHorse)
 *   用爱发电俱乐部:[https://t.me/NotionFans](https://t.me/NotionFans)
 
-###### 新冠肺炎[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E-1)
-
-*   2019-nCoV 疫情实时播报🅥:[https://t.me/nCoV2019](https://t.me/nCoV2019)
-*   新型冠状病毒最新疫情推送频道:[https://t.me/CoronavirusNews](https://t.me/CoronavirusNews)
-*   丁香园肺炎疫情播报:[https://t.me/ncovPneumonia](https://t.me/ncovPneumonia)
-*   霍金斯大学 nCoV 全球实时数据:[https://t.me/JHU_nCoV_API](https://t.me/JHU_nCoV_API)
-*   Wuhan Quarantine #nCoV #武汉封城:[https://t.me/wuhanquarantinefrom20200123](https://t.me/wuhanquarantinefrom20200123)
-*   2019-nCoV 实况:[https://t.me/CN2019nCoV](https://t.me/CN2019nCoV)
-*   2019-nCoV 疫情相关资讯发布:[https://t.me/WuHan2019nCoV](https://t.me/WuHan2019nCoV)
-*   Financial Times: Coronavirus news:[https://t.me/financialtimes](https://t.me/financialtimes)
-*   全平台口罩放货监控:[https://t.me/jdkzjk](https://t.me/jdkzjk)
-*   新型冠狀病毒肺炎疫情頻道:[https://t.me/NCVMacao](https://t.me/NCVMacao)
-*   疫情趋势图 & 信息图:[https://t.me/nCoV2019Graph](https://t.me/nCoV2019Graph)
-*   Coronavirus Info:[https://t.me/corona](https://t.me/corona)
-*   印度:[https://t.me/MyGovCoronaNewsdesk](https://t.me/MyGovCoronaNewsdesk)
-*   以色列:[https://t.me/MOHreport](https://t.me/MOHreport)
-*   哈萨克斯坦:[https://t.me/coronavirus2020_kz](https://t.me/coronavirus2020_kz)
-*   马来西亚:[https://t.me/cprckkm](https://t.me/cprckkm)
-*   乌兹别克斯坦:[https://t.me/koronavirusinfouz](https://t.me/koronavirusinfouz)
-*   沙特:[https://t.me/LiveWellMOH](https://t.me/LiveWellMOH)
-*   新加坡:[https://t.me/govsg](https://t.me/govsg)
-*   西班牙:[https://t.me/sanidadgob](https://t.me/sanidadgob)
-*   乌克兰:[https://t.me/COVID19_Ukraine](https://t.me/COVID19_Ukraine)
-*   俄罗斯:[https://t.me/stopcoronavirusrussia](https://t.me/stopcoronavirusrussia)
-*   香港:[https://t.me/HKFIGHTCOVID19](https://t.me/HKFIGHTCOVID19)
-*   德国:[https://t.me/corona_infokanal_bmg](https://t.me/corona_infokanal_bmg)
-
-###### 其他[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%85%B6%E4%BB%96-1)
+###### 其他[]
 
 *   频道 / 群组 / 机器人分享:[https://t.me/hao123f](https://t.me/hao123f)
 *   Animated Stickers:[https://t.me/AnimatedStickers](https://t.me/AnimatedStickers)
@@ -2512,9 +2466,7 @@
 *   瞎玩菌:[https://t.me/blindgamer](https://t.me/blindgamer)
 *   Tesla China 🅥:[https://t.me/Teslacn](https://t.me/Teslacn)
 
-##### 机器人 Bot[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%9C%BA%E5%99%A8%E4%BA%BA-bot)
-
-###### 官方认证 Bot[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%AE%98%E6%96%B9%E8%AE%A4%E8%AF%81-bot)
+###### 官方认证 Bot[]
 
 *   [BotFather](https://t.me/BotFather) 是所有机器人的 god 了，Telegram 官方管理；可以用它创建机器人和管理机器人，你可以利用机器人 API, 帮你自己很多事情
 *   [IFTTT](https://t.me/IFTTT) ifttt 的官方机器人，可以很方便的和 ifttt 里的其他服务连接，比如订阅某个网站的 RSS, 如果有更新就会自动把 RSS 内容推送到这个机器人，减少了频繁刷新网站来获取新的内容
@@ -2533,7 +2485,7 @@
 *   [ContestBot](https://t.me/ContestBot) ContestBot is a way for Telegram to hold online competitions and find new members for the Telegram team.
 *   [QuizBot](https://t.me/QuizBot) Create a quiz with several multiple choice questions and test your friends.
 
-###### 其他[](https://congcong0806.github.io/2018/04/24/Telegram/#%E5%85%B6%E4%BB%96-2)
+###### 其他[]
 
 *   [聪聪 Bot](https://t.me/congcongx_bot) Telegram 知识 / 中文汉化，机场推荐，SS/SSR 下载，数码荔枝优惠劵，少数派 Power+ 2.0 优惠劵，Office 365 靠谱拼车，正版软件折扣…
 *   [这个我知道](https://t.me/keyword_reply_bot) 本机器人能够自动回复关键词对应的内容
@@ -2685,7 +2637,7 @@
 
 （排名不分先后）
 
-##### Telegram 相关链接[](https://congcong0806.github.io/2018/04/24/Telegram/#telegram-%E7%9B%B8%E5%85%B3%E9%93%BE%E6%8E%A5)
+##### Telegram 相关链接[]
 
 *   [Telegram 知识](https://congcong0806.github.io/2019/04/11/Telegram)
 *   [Telegram 官方客户端支持中文语言](https://congcong0806.github.io/2019/02/21/Telegram)
