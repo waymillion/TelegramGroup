@@ -53,7 +53,7 @@
         <img src="https://i.imgur.com/SVox0Se.png" width="345px;" alt="2"/>
       </a>
       <br />
-      <a href="https://t.me/TNTsex">极品动漫</a>
+      <a href="https://t.me/+oedeAG8Oe99jZDhl">极品动漫</a>
     </td>
 
   <td align="center">
@@ -70,8 +70,8 @@
 
 ### 推荐
 
-*   Telegram 🔥全网3D同人动漫:[https://t.me/TNTsex](https://t.me/TNTsex)
-*   Telegram 🔥最大VAM国漫社:[https://t.me/kanvam](https://t.me/kanvam)
+*   Telegram 🔥全网3D同人动漫:[https://t.me/TNTsex](https://t.me/+oedeAG8Oe99jZDhl)
+*   Telegram 🔥最大VAM国漫社:[https://t.me/kanvam](https://t.me/+6aCLewqKbsg3OGZl)
 *   Telegram 🔥最大黄油社:[https://t.me/ACGgamer](https://t.me/ACGgamer)
 *   Telegram 🔥巨乳福利搜索群:[https://t.me/juruqun](https://t.me/juruqun)
 *   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_1021757501)
